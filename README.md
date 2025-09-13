@@ -31,5 +31,5 @@
 ---
 
 ## 📫 Connect with Me
-- ✉️ Email: **sadikatanzila@gmail.com**  
+- ✉️ Email: **sadikatanzila@gmail.com**  , **tasa757b@gmail.com**
 - 🔗 LinkedIn: [linkedin.com/in/sadika-tanzila-5a25b240](https://www.linkedin.com/in/sadika-tanzila-5a25b240)  
